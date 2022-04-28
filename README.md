@@ -1,1 +1,1 @@
-Testament to the accumulation of marginal gains.
+Testament to the aggregation of marginal gains.
